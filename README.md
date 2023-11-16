@@ -1,0 +1,1 @@
+# ControlTask6_MQA_Osman_Zudiyev
